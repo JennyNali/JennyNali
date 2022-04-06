@@ -8,7 +8,7 @@
 ## - 🤔 I’m looking for help with ... Life itself lol
 ## - 💬 Ask me about ... anything
 ## - 📫 How to reach me: ... LinkedIn 
-## - 😄 Pronouns: ... They, She and It     ## 'The Shit'
+## - 😄 Pronouns: ... They, She and It     ## 'The Shit' ##
 ## - ⚡ Fun fact: ...I model, cook and trade
 
  
