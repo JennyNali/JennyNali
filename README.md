@@ -7,7 +7,7 @@
 ## - 👯 I’m looking to collaborate on ... Data Analysis and Software Engineering, any project that can help me grow
 ## - 🤔 I’m looking for help with ... Life itself lol
 ## - 💬 Ask me about ... anything
-## - 📫 How to reach me: ... LinkedIn 
+## - 📫 How to reach me: ... jennynali09@gmail.com
 ## - 😄 Pronouns: ... They, She and It     ## 'The Shit' ##
 ## - ⚡ Fun fact: ...I model, cook and trade
 
