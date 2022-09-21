@@ -1,3 +1,5 @@
+<img src="https://github.com/KNehe/KNehe/blob/main/readme_header%20-%20Copy.png?raw=true" alt="banner that says Onwunali Jennifer, Upcoming Software Engineer">
+
 ### Hi there 👋
 
 
